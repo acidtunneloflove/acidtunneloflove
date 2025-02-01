@@ -10,6 +10,7 @@ these are the things i put in my ponies names:
 - dni/dniuf - do not interact or do not interact unless friends! self explanatory :)
 - afk - away from keyboard! also self explanatory!
 - silent - not speaking! i will talk in emotes tho ^^
+- w2i - whisper to interact! probably offtab if i have this in my name. whisper if u wanna get my attention :P
 
 where i usually sit:
 
@@ -22,6 +23,6 @@ where i usually sit:
 - docks
 - mcyt area
 
-i think thats all i need to cover for now :D if i need to, ill add more
+i think thats all i need to cover rn :D if i need to, ill add more!
 
 ~ but thats all for now!! baii :3 ~
