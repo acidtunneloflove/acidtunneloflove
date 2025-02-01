@@ -6,7 +6,7 @@ so to start out,
 these are the things i put in my ponies names:
 
 - c+h - cuddle + hide! feel free to sit with me or hide behind me :)
-- dnc - do not copy! though it may not be explictly stated all the time, please never copy my ponies. this appies to "stealing your ______" people, too. thank you for respecting my wishes ^^
+- dnc - do not copy! though it may not be explictly stated all the time, please never copy my ponies. this apples to "stealing your ______" people, too. thank you for respecting my wishes ^^
 - dni/dniuf - do not interact or do not interact unless friends! self explanatory :)
 - afk - away from keyboard! also self explanatory!
 - silent - not speaking! i will talk in emotes tho ^^
